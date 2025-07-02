@@ -1,4 +1,4 @@
-# CardValue_Privacy
+# CardValue Pro Privacy Policy
 
 Privacy Policy
 
